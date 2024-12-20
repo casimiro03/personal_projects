@@ -1,2 +1,2 @@
 # personal_projects
-Here i post the things I'm learning before finding it a better place to put in.
+Here I publish the things I learn before finding it a better place to live and yes is a agenda too. 
