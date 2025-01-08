@@ -1,2 +1,2 @@
-# personal_projects
-Here I publish the things I learn before finding it a better place to live and yes is a agenda too. 
+# Notebook MIT 6.100L
+For time purposes studyng in varius devices. I sumbit here the key notes and other revelant data.
